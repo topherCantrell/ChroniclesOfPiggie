@@ -1,12 +1,12 @@
 # The Chronicles of Piggie
-## NaNoWriMo 2021
 
-### November 2, 2021
-First day done! I hope I can think of enough adventures! I'll sketch out the day's plan on and off during the day.
-Then pound out the words at night.
+Stories:
+  - Wild West Piggie
+  - Starfleet Piggie
+  - Sir Piggie and the Dragon
+  - Pirate Pig
+  - Piggie and the Ghost
 
-Some ideas:
-  * choose your own adventure
-  * president calls
-  * cross-over with star trek
-  * time travel story
+## Questions for Piggie
+
+These are questions from the reader "thought" to Piggie and answered throughout the book.
