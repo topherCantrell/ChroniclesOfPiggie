@@ -24,3 +24,5 @@ quest to get the kettle (pop it at the end).
 # Wild West Piggie
 
 # Sir Piggie and the Dragon
+
+Many of the same sequences from Dragon's Layer.
