@@ -1,4 +1,18 @@
 
+Piggie gets boat through storm
+
+Hazel scares off the pirates
+
+<???> Store keeper. long Bony fingers Plays violin to calm the giant octopus
+
+<???> hairy arms ??? Saves them by ... ?
+
+<???> Paul McKracken — Banker John McKracken’s son uses parrot to send info
+
+Two chests. One filled with gold, the other silver. A black bag in one of them ... filled with the famed black pearls.
+
+WHen they open the gold chest is is filled to the brim with kernels/seeds <??> Gold corn. The other with silver queen corn (the gold and silver). The real gold and silver is buried beneath the kernels ... about half full and topped with the kernels.
+
 Peg leg. Ship: The Flying Pig (flag is a pig with wings). Red Back was one eyed -- he had a left
 eye. This comes into play when they solve a riddle on the map.
 
