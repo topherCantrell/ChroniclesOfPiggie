@@ -1,27 +1,51 @@
-# The Legend
+# Scenes
 
-Two chests. One filled with gold, the other silver. A black bag in one of them ... filled with the famed black pearls.
-
-WHen they open the gold chest is is filled to the brim with kernels/seeds <??> Gold corn. The other with silver queen corn (the gold and silver). The real gold and silver is buried beneath the kernels ... about half full and topped with the kernels.
-
-Peg leg. Ship: The Flying Pig (flag is a pig with wings). Red Back was one eyed -- he had a left
-eye. This comes into play when they solve a riddle on the map.
-
-  - Meeting in a tavern
-  - Treasure is Captain Red Back's fabled treasure
-  - Bill McKracken killed Red Back, but Piggie has the map
-  - Hires crew. McKracken's descendants come to the meeting and plan to steal the map. The son manages
-    to join them (we find out who he is later) but he is suspicious the whole trip.
+## 1 Introduce the quest
+  - Setting: Dancing Boar Tavern
+  - Action: Meet the characters and introduce the quest
+  - Keys:
+    - Map to the treasure
+    - Legend of the treasure curse: storm, pirates, monster, devil's teeth
+    - Piggie and Hazel keep the two small bags
+    - Crew splits the rest
+    - One month there, one month back (no other details)
   
-  - Treasure is on an uncharted island southwest of Jamaica. The crew will stop there for supplies.
+## 2 Cargo
+  - Setting: Docks/market
+  - Action: Loading the ship
+  - Keys:
+    - Paul is a spy
+    - Parrot can relay messages
+    - 2 bags of flour. piggie is cook -- doesn't make bread
+    - 20 bottles of rum (later must keep peeps from drinking) (false idea to set fire to it)
+    
+## 3 First night
+  - Setting: Ship dining hall
+  - Action: First leg of the journey revealed
+  - Keys:
+    - Paul sends a message
+
+## 4 Picking apples
+  - Setting: Tropical island
+  - Action: Picking apples ... soggy smelly ones
   
-  - End: Piggie and Hazel trade Crew 1 for his home and farm on Tortuga for the Flying Pig. Popcorn farm.
+## 5 Pirates
 
-# Snippets 
+## 6 Anna
 
-It was dark and musty in the Dancing Boar Tavern. The light from the fire danced on his red mane casting shaddows like trees on the wall.
+## 7 Storm
 
-"Wait. Did you dye your hair for this story?" Hazel asked. Piggie looked up from the computer. "I did. It's my story and I can tell
-it the way I want. Would you like a new color?" "No ... normal old gray is fine."
+## 8 Monster
 
-Hazel sat beside him licking her normal old gray hair.
+## 9 Feather
+
+## 10 Teeth
+
+## 11 Treasure island
+
+## 12 Treasure revealed
+
+## 13 New captain
+
+## 14 Popcorn farmers
+  
