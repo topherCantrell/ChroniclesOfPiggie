@@ -1,3 +1,5 @@
+# Scaring Hazel
+
 Good morning! I am glad you want to spend some time with me, but I must warn you: I’m not a very exciting pig. Oh, like most stuffed animals, I have my share of adventures. I rarely seek them out. They have a peculiar way of finding me when they want to. If you stick around long enough, you’ll see for yourself.
 
 Right now, I am looking for a way out from under these covers. Every night it’s the same story. I always fall asleep on the pillows at the head of the bed, but by morning I’m buried in the blankets, wrapped up in the sheets deep in the warmth of the king-size bed. My Momie and Daddy start out snuggling with me, but when they toss and turn in their sleep, I end up with my face in someone’s feet … or knee … or butt! Yuck, that’s the worst! Still, it has been cold these past few nights, and I welcome the body heat of my big smelly people.
