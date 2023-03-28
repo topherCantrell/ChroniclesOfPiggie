@@ -19,4 +19,4 @@ Piggie stops to consider that. He looks at me then back to the pillow mound then
 “Oh!” He laughs, “In that case, never mind!” He dives onto the mound and squirms into a crease between two of the pillows. The mound grunts 
 and shudders for a moment — then falls silent after a long “ahhhhhh”.
 
-Good news: I found The Piggie. I turn from the room closing the door behind me.
+Good news: I found The Piggie. I turn from the room and close the door behind me.
