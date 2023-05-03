@@ -15,3 +15,12 @@
 
 ![](/blog/bday/plants.jpg)
 
+![](/blog/bday/recycle.jpg)
+
+![](/blog/bday/pressure.jpg)
+
+![](/blog/bday/driveway.jpg)
+
+![](/blog/bday/laundry.jpg)
+
+![](/blog/bday/dance.jpg)
