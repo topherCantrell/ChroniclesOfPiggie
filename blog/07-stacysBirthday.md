@@ -35,11 +35,11 @@ I know he didn't eat all the chips. There must be one or two left in here.
 
 # Sunday April 30, 2023 !!! HAPPY BIRTHDAY !!!
 
-Today we spread the pine straw in the front beds. I did most of the detailed work, of course.
+Today we spread pine straw in the front beds. I did most of the detailed work, of course.
 
 ![](/blog/bday/straw.jpg)
 
-In the afternoon, we fired up the pressure washer. Chris wanted to play in it, but there was work to do!
+In the afternoon, we fired up the pressure washer. Chris wanted to play in the water, but there was work to do!
 
 ![](/blog/bday/pressure.jpg)
 
