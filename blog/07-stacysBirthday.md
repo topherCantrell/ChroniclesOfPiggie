@@ -25,7 +25,7 @@ Chris wanted me to "try out" an expensive grill. He seemed to find that funny, b
 
 ![](/blog/bday/grill.jpg)
 
-Next up was Subway! Mmmmmmmm ... oatmeal-raisin cookie. My favorite!
+Next up was Subway for lunch! Mmmmmmmm ... oatmeal-raisin cookie. My favorite!
 
 ![](/blog/bday/lunchCookie.jpg)
 
