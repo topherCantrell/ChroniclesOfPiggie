@@ -55,6 +55,8 @@ And some more driveway washing. Look what a difference it makes! That black stff
 
 We rounded off the day by sweeping all the floors downstairs. Boy, what a mess! The baseboards were my speciality.
 
+![](/blog/bday/sweep.jpg)
+
 # Tuesday
 
 Tuesday afternoon we finished up the driveway. It isn't hard work, but you have to take your time and sweep slowly holding the sprayer close to the ground for maximum cleaning.
