@@ -71,6 +71,6 @@ I made time for a little laundry while Chris cooked dinner. These are clean, but
 
 Whew! The work is done. Just a little energy left for a Piggie Dance Party before bed. The disco ball is flashing brightly tonight. 
 
-HAPPY BIRTHDAY, STACY! I LOVE YOU! WE DANCE IN YOUR HONOR!
+HAPPY BIRTHDAY, STACY! I LOVE YOU! WE DANCE TO CELEBRATE YOU!
 
 ![](/blog/bday/dance.jpg)
