@@ -73,6 +73,6 @@ Then I decided this tank was way more my style!
 
 All the excitement was wearing me out, so I decided to lay down for an afternoon nap.
 
-![](/blog/pics/08-walter16.jpg)
+![](/blog/pics/08-walter17.jpg)
 
 But not before stopping to smell the roses. What an adventure!
