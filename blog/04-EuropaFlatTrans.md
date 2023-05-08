@@ -1,5 +1,5 @@
 # Europa Flat Trans
-### 11/10/2021
+### November 10, 2021
 
 I loaded up the family on Titan, which was easier than expected; the big-guy weighs 250 pounds on Earth. On Titan he only 
 weighs 35 pounds. He bounced his way into the ship like an excited superball.
