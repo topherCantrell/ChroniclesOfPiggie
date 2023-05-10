@@ -15,4 +15,4 @@ Don't forget the classic "corn chips".
 
 ![](/blog/pics/01-corn/01-corn2.jpg)
 
-Ahhhh ... time for some TV.
+Ahhhh ... time for some TV!
