@@ -12,3 +12,6 @@ We ate lunch at the Chinese Buffet. Mmmmmm. Corn nuggets!
 The owner lady kept asking me to go back to the kitchen, but I never went.
 
 ![](/blog/pics/03-work/03-dinghow.jpg)
+![](/blog/pics/03-work/03-russ.jpg)
+![](/blog/pics/03-work/03-monitor.jpg)
+![](/blog/pics/03-work/03-car.jpg)
