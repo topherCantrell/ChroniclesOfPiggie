@@ -9,6 +9,8 @@ Ah! I see a line of light up ahead where the covers crease. It takes me a minute
 
 There is the full-length mirror against the bedroom wall. And there I am on the edge of the bed in the mirror! Look closely – I’m the brown ball of fur on the blue covers.
 
+![](/blog/pics/02-ScaringHazel/02-bed.jpg)
+
 The bed-hair isn’t too bad today. I’ve definitely had worse. I turn sideways to count my four deep brown legs in the mirror. Yep, there are four! There are always four. Each is capped with black feet, or hands. I have no toes or fingers, so they are basically the same.
 
 My body is a long brown, furry tube with a gray face on one end and a white “wash with care” tag as my tail. I have a pure black patch of hair on top of my head. That’s my mane! My granddad was pure Razor-Back.
