@@ -21,6 +21,8 @@ A quick hop down, and I’m on the floor hopping to the door. I carefully crack 
 
 Look down the hall there. See that gray and white lump of fur against the wall near the stairs? That’s our cat, Hazel. Oh boy, she’s sound asleep! Perfect. How I love to surprise that fat old cat! Just look at her – sleeping on her back with her feet up in the air! She’s just asking for it, don’t you agree?
 
+![](/blog/pics/02-ScaringHazel/02-hazel.jpg)
+
 I could try sneaking through the door now, but she has great ears, and it is too quiet. I’m going to wait here a bit for the central air to turn on and give me a little background noise. It’s cold this morning, and it won’t take long. I’ll just twiddle my thumbs – oh wait, I don’t have any. You twiddle yours and I’ll do some stretches to warm up before we pounce on the cat. I’m not a Spring piglet anymore, you know. I don’t want to pull a muscle. One … two … one … two … ah there is the air blower coming on!
 
 Just a little push through the crack, and we are in the dark hallway. The hardwood floor is cold, and my cloth feet slide easily. I’ll have to start out slowly and build up to a run. Are you ready?
