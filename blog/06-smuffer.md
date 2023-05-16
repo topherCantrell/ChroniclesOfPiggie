@@ -7,6 +7,8 @@ Mount Pillow.
 
 With much squirming and wiggling, Piggie roots himself out from under the mound and hops to the foot of the bed where I’m standing.
 
+![](/blog/pics/06-smuffer/06.smuffer1.jpg)
+
 “She’s trying to smuffer me with the pillows!” He exclaims.
 
 “Piggie,” I say, “you can’t breath!”
