@@ -1,6 +1,10 @@
 # UFOs and Aliens
 
+Aluminum Foil probe butt and read mind. Spent the day at the bookstore doing research.
+
 ![](/blog/pics/09-UFO/09-UFO1.jpg)
+
+My hat
 
 ![](/blog/pics/09-UFO/09-UFO2.jpg)
 
