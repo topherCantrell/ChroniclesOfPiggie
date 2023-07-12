@@ -8,4 +8,4 @@ what ...
 
 ![](/blog/pics/10-Cave/10-Cover01.jpg)
 
-![](/blog/pics/10-Cave/10-Cover02.jpg)
+
