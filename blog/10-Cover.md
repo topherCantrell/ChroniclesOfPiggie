@@ -6,6 +6,6 @@ Come on in and get out of the weather!
 
 what ...
 
-![](/blog/pics/10-Cover/10-Cover01.jpg)
+![](/blog/pics/10-Cave/10-Cover01.jpg)
 
-![](/blog/pics/10-Cover/10-Cover02.jpg)
+![](/blog/pics/10-Cave/10-Cover02.jpg)
