@@ -1,3 +1,11 @@
+# Overview
+
+Piggie and Hazel rent a boat to go after Captain O'Reden's famous treasure. They put together a small crew. Each
+crew member gets them through a challenge over the course of the adventure. One crew member is a spy -- son of
+an old enemy of O'Reden.
+
+The trip takes two weeks. They stop 
+
 # Scenes
 
 ## 1 Introduce the quest
