@@ -3,7 +3,7 @@
 - Piggie (captain, pig)
 - Hazel (1st mate, cat)
 - Anna Petricole (crew, French pirate)
-- Billy "Bones" McGee (crew)
+- Billy "Bones" McGee (crew, skinny violin player)
 - Paul McKracken and Booty (crew, spy)
 - Chip "Rock" Mullins (crew)
 
@@ -21,7 +21,7 @@ Power: Scares away the pirates
 
 ## Crew 1: Anna Petricole
 
-Power: Figures out the parrot is sending messages. Takes feather. Parrot can't steer and the crew discover the messages.
+Power: Figures out the parrot is sending messages. Takes feather. The parrot can't steer, and the crew discovers the messages.
 
 French Pirate. Colorful feathers in her long blonde hair.
 
@@ -33,7 +33,7 @@ Store keeper. Long, bony fingers. Pasty white and long face. Skinny.
 
 ## Crew 3: Paul McKracken and Booty (parrot)
 
-Son of banker John McKracken who funds the adventure. Sending info back to father via the parrot.
+Son of banker John McKracken, who funds the adventure. Sending info back to father via the parrot.
 
 Large eyes and ears (good at spying).
 
@@ -41,6 +41,6 @@ Large eyes and ears (good at spying).
 
 Works on the dock. Strong. Black man, deep voice. Short and stocky with bulging arms.
 
-## Captain Reden (Orville Redenbacher)
+## Captain O'Reden (Orville Redenbacher)
 
 Left peg leg and left eye patch (comes into play solving a riddle in the cave).
