@@ -1,10 +1,33 @@
+# Structure
+
+Shooting for 2000 words a night for 25 nights in November. We'll start the material as 25 chapters and combine as needed
+in later editing.
+
 # Overview
 
-Piggie and Hazel rent a boat to go after Captain O'Reden's famous treasure. They put together a small crew. Each
+Piggie and Hazel rent a boat, The Flying Pig, to go after Captain O'Reden's famous treasure. They put together a small crew. Each
 crew member gets them through a challenge over the course of the adventure. One crew member is a spy -- son of
 an old enemy of O'Reden.
 
-The trip takes two weeks. They stop 
+The trip takes two weeks. They sail east from George Town, Grand Cayman to Golden Grove on the east end of Jamaica -- four days. 
+Pick apples for a day. Another day 2 days to the tip of Cuba where they face the pirates. Gato Diablo (Hazel drenched in water
+and dropped in flower) goes berzerk and saves them. One more day to Tortuga.
+
+Anna Petricole joins the crew and they restock supplies. Anna sees the parrot flying off with notes over the next nights.
+
+Sail north and east towards Bermuda -- out into the deep Atlantic. Four days straight. Piggie guides the ship through the wild
+storm.
+
+The next night they face the sea monster. Bones plays the violin to calm it. They lower the dingy filled with rotting, fermented
+apples and wine. The monster falls asleep. They sail onward.
+
+- Devil's Maw. Violent currents and shifting tides. Maze of small islands that look like teeth ready to chew a ship ... they see broken ships. Have to go in at two different tide levels. Only this time of year (they are on a tight schedule for this reason). First high-tide to get over a barrier. Then low-tide to get into a tunnel.
+- The labyrinth in the caves.
+- The chests ... don't open. take back to the ship
+- Ship captured by bad guy
+- Fight and chase. Heros escape
+- Opening the chests
+- The Popcorn Farmers
 
 # Scenes
 
