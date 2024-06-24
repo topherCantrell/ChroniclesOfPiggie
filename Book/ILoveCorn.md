@@ -1,5 +1,7 @@
 # I Love Corn
 
+At Living Writer: [https://app.livingwriter.com/shared_chapter/f20aedd16a886315f768fc0e9a802f11sa1Gx1ACOIoWkG0O39b2Zl](https://app.livingwriter.com/shared_chapter/f20aedd16a886315f768fc0e9a802f11sa1Gx1ACOIoWkG0O39b2Zl)
+
 There was a small dining table in the corner of the pub's kitchen. There were four chairs and four place settings, but rarely did all four of the family sit at the table at once. Violet or Red (often both) worked at the stove stirring pots, turning food in pans, and filling plates to take to the guests. Violet and Red took turns sitting down and eating with the kids.
 
 Six-year-old Hazel and Piggie sat across from each other, waiting for dinner. Papa Red, wearing his white apron and chef's bandana, placed a basket of sliced bread in the middle of the table. He winked at them and headed back to the stove.
