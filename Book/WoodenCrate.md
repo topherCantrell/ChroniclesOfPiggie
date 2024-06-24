@@ -2,7 +2,8 @@
 
 At Living Writer: [https://app.livingwriter.com/shared_chapter/890656bb7c1e356c7c426f3b82bd8b19CoZWTwzzR39qjbI4NrP4d4](https://app.livingwriter.com/shared_chapter/890656bb7c1e356c7c426f3b82bd8b19CoZWTwzzR39qjbI4NrP4d4)
 
-Mason pulled a bowl from the stack of dirty dishes beside the sink. He dunked it into the soapy water, scrubbed the remains of beef stew from it, and handed the bowl to Violet for rinsing.<p>
+Mason pulled a bowl from the stack of dirty dishes beside the sink. He dunked it into the soapy water, scrubbed the remains of beef stew from it, and handed the bowl to Violet for rinsing.
+
 “It was a busy night tonight,” Mason said. “Everyone loved your cobbler!”
 
 Violet smiled, rinsed the bowl, and placed it on the drying rack. “Saturday nights are always busy.”
