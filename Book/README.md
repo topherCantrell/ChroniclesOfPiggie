@@ -79,7 +79,7 @@ Later that evening, Hazel is cleaning herself and has calmed down. Piggie has ma
 
 Flashback. 20 years or so ago. This is how the baby Piggie and Hazel come to live with Papa Red and Violet. They were left in a crate at the door of the tavern.
 
-[Draft (not started)](README.md#gato-diablo)
+[Draft](WoodenCrate.md)
 <details><summary>Outline</summary>
 Red and Violet washing dishes. Knock at the door. Nobody there, but crate and Hazel giggles. Note says to love Piggie and Hazel that a
 life at sea is no place for them. Red picks up Hazel and reads her heart-necklace. Piggie roots out from under the blanket.
