@@ -4,6 +4,7 @@ portal to the past and future. In the end, they find the treasure and live happi
 
 # The Dancing Boar
 This is the overview
-<details><summary>Planning</summary>
+<details>
+  <summary>Outline</summary>
   and here are the details
 </details>
