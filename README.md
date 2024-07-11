@@ -1,3 +1,20 @@
+<details>
+  <summary>Click me</summary>
+  
+  ### Heading
+  1. Foo
+  2. Bar
+     * Baz
+     * Qux
+
+  ### Some Javascript
+  ```js
+  function logSomething(something) {
+    console.log('Something', something);
+  }
+  ```
+</details>
+
 # The Chronicles of Piggie
 Piggie and I are still planning the novel. Here are some scenes ready for the first draft. Click on the
 headings below to read the manuscript.
