@@ -1,18 +1,12 @@
 <details>
-  <summary><h1>Click me</h1></summary>
+<summary><h1>Click me</h1></summary>
   
-  ### Heading
+### Heading
   1. Foo
   2. Bar
      * Baz
      * Qux
-
-  ### Some Javascript
-  ```js
-  function logSomething(something) {
-    console.log('Something', something);
-  }
-  ```
+     *   
 </details>
 
 # The Chronicles of Piggie
