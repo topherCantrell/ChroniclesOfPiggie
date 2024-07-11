@@ -1,7 +1,5 @@
 <details>
-  <summary>
-    # Click me
-  </summary>
+  <summary><h1>>Click me</h1></summary>
   
   ### Heading
   1. Foo
