@@ -11,7 +11,7 @@ Piggie shows them the map. They are planning a treasure hunt. The crew keeps all
 Black Pearls that Piggie and Hazel want. The map has mystical clues written on it. One clue is a start date for the
 voyage. That date is 10 days away. The bad guy's son is one of the crew (nobody knows he is a spy).
 
-[Draft to-be-done](README.md)
+[Draft (not started)](README.md#the-dancing-boar)
 
 <details><summary>Outline</summary>
 The story opens at the Dancing Boar tavern owned by Piggie and Hazel's family. John McCracken (bad guy) enters the tavern and hides at a 
