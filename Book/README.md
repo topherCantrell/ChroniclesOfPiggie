@@ -75,5 +75,31 @@ The crew pours cold water over Hazel and drops her in the flour barrel. When the
 Later that evening, Hazel is cleaning herself and has calmed down. Piggie has made her a special apology dish.
 </details>
 
+## Wooden Crate
 
+Flashback. This is how the baby Piggie and Hazel come to live with Papa Red and Violet. They were left in a crate at the door of the tavern.
 
+[Draft (not started)](README.md#gato-diablo)
+<details><summary>Outline</summary>
+Red and Violet washing dishes. Knock at the door. Nobody there, but crate and Hazel giggles. Note says to love Piggie and Hazel that a
+life at sea is no place for them. Red picks up Hazel and reads her heart-necklace. Piggie roots out from under the blanket.
+</details>
+
+## Sea Monster
+
+Four days into the voyage. Late afternoon. Approach the "sea monster" clue on the map. "Violin" and "Dinghy of Apples". Bones plays violin
+to calm the beast while they pour the barrel of rum over the apples and feed the dinghy to the giant squid. It fall asleep
+and drifts back under the waves.
+
+[Draft (not started)](README.md#sea-monster)
+<details><summary>Outline</summary>
+Our heroes face the giant squid. They have kept the smelly dinghy of apples on the ship. The map has the clues "violin" and "rum" and "dinghy of apples". Anne has lore -- giant squid that appears on full moon nights.
+
+Piggie commands lowering the sails for the evening. The squid attacks.
+
+Bones stands on the side of the ship and plays the violin. The beast calms and listens. Piggie has an idea. He commands them to pour the two barrels of rum over the apples. Then lowers the putrid boat over the side. Bones continues to play, but the squid is attracted to the smelly apples. It gobbles up the boat of apples.
+
+The squid begins to sway drunkenly with the music. It slides back under the water to sleep off the rum.
+
+Piggie commands half-sail and stays up the night to leave the squid behind.
+</details>
