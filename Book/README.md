@@ -12,7 +12,6 @@ Black Pearls that Piggie and Hazel want. The map has mystical clues written on i
 voyage. That date is 10 days away. The bad guy's son is one of the crew (nobody knows he is a spy).
 
 <details><summary>Outline</summary>
-
 The story opens at the Dancing Boar tavern owned by Piggie and Hazel's family. John McCracken (bad guy) enters the tavern and hides at a 
 table to spy on the meeting Piggie is having with the new crew.
 
@@ -26,5 +25,4 @@ There is a date on the map. Nobody understands why. The journey begins in Tortug
 
 After the meeting, we learn that John McCracken's son, Paul, is one of the crew. He'll be sending written updates with his parrot, Booty. We see 
 Booty deliver a message in the scene. We learn that John intends to rob Piggie of the treasure -- that he was there the night that Red took the map.
-
 </details>
