@@ -4,7 +4,7 @@ portal to the past and future. In the end, they find the treasure and live happi
 
   - [Characters](CHARACTERS.md)
 
-# The Dancing Boar
+## The Dancing Boar
 
 Piggie and Hazel meet up with the crew at the Dancing Boar Tavern one night. The bad guy is spying on them from another table. 
 Piggie shows them the map. They are planning a treasure hunt. The crew keeps all the treasure except for a bag of
