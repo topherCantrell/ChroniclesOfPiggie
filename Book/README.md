@@ -77,7 +77,7 @@ Later that evening, Hazel is cleaning herself and has calmed down. Piggie has ma
 
 ## Wooden Crate
 
-Flashback. This is how the baby Piggie and Hazel come to live with Papa Red and Violet. They were left in a crate at the door of the tavern.
+Flashback. 20 years or so ago. This is how the baby Piggie and Hazel come to live with Papa Red and Violet. They were left in a crate at the door of the tavern.
 
 [Draft (not started)](README.md#gato-diablo)
 <details><summary>Outline</summary>
