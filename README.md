@@ -1,5 +1,5 @@
 <details>
-  <summary><h1>>Click me</h1></summary>
+  <summary><h1>Click me</h1></summary>
   
   ### Heading
   1. Foo
