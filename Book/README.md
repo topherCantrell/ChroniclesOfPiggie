@@ -37,7 +37,7 @@ mystical clues on the map have a checklist. The items are referenced at specific
 <details><summary>Outline</summary>
 Piggie has a checklist of items that are being loaded on the ship. There are some strange items. Piggie explains to Paul that the map references these 
 items at different points, like "use dinghy of apples" and "barrel of flour." The corner of the map has a shopping list. Bones comes aboard with his 
-  violin, and Piggie checks it off.
+violin, and Piggie checks it off.
 </details>
 
 ## Seagulls
