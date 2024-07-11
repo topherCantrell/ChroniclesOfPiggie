@@ -30,9 +30,10 @@ Booty deliver a message in the scene. We learn that John intends to rob Piggie o
 
 ## The Flying Pig
 
-Midday at the docks where the Flying Pig is docked. The crew is loading supplies. Piggie is checking off some strange things. The mystical clues on
-the map have a checklist. The items are referenced at specific places along the voyage. No idea how they will be used.
+Five days later. Midday at the docks where the Flying Pig is docked. The crew is loading supplies. Piggie is checking off some strange things. The 
+mystical clues on the map have a checklist. The items are referenced at specific places along the voyage. No idea how they will be used.
 
+[Draft (not started)](README.md#the-flying-pig)
 <details><summary>Outline</summary>
 Piggie has a checklist of items that are being loaded on the ship. There are some strange items. Piggie explains to Paul that the map references these 
 items at different points, like "use dinghy of apples" and "barrel of flour." The corner of the map has a shopping list. Bones comes aboard with his 
@@ -43,10 +44,35 @@ items at different points, like "use dinghy of apples" and "barrel of flour." Th
 
 Day three on the voyage. Hazel is journaling in the crow's nest. She describes a typical day on the ship and what role each crewmember fills.
 
+[Draft (not started)](README.md#seagulls)
 <details><summary>Outline</summary>
-Hazel is up in the crow's nest journaling on day three. She describes the boat and crew activities below. She describes the duties and that Piggie is the cook and prepares wonderful meals at night. Bones plays his violin. 
+Hazel is up in the crow's nest journaling on day three. She describes the boat and crew activities below. She describes the duties and that Piggie 
+is the cook and prepares wonderful meals at night. Bones plays his violin. 
 
 Hazel describes Piggie's "going to bed" routine.
+</details>
+
+## Tortuga
+
+Lots of planning to do here. Anne joins the crew and they set off on the start day.
+
+[Draft (not started)](README.md#seagulls)
+<details><summary>Outline</summary>
+They rescue their voodoo mystic, Anne. Scene to be determined. Anne joins the crew. They set off at sunrise on the appointed day.
+</details>
+
+## Gato Diablo
+
+On the Flying Pig, two days into the voyage. They are attacked by pirates. The map tells them to use the barrel of flour. They dunk Hazel
+in cold water and then pour the flour over her. She comes out mad -- berzerk -- and chases the pirates away.
+
+[Draft (not started)](README.md#gato-diablo)
+<details><summary>Outline</summary>
+They approach the coordinates of the first hints on the map: "barrel of flour" and "Diablo Gato". Pirates attack them. Piggie shows Anne the map. Anne tells them the lore of Diablo Gato. A great, white, devil cat that walks the water and eats everyone in her path.
+
+The crew pours cold water over Hazel and drops her in the flour barrel. When the pirates open the door, they are greeted by a growl from the darkness. Hazel is berzerk with anger and leaps out at them. She is ghostly white from the flour. The pirates shout "Diablo Gato" and flee.
+
+Later that evening, Hazel is cleaning herself and has calmed down. Piggie has made her a special apology dish.
 </details>
 
 
