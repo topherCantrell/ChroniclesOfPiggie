@@ -11,17 +11,17 @@ With much squirming and wiggling, Piggie roots himself out from under the mound 
 ![](smuffer1.jpg)
 ![](smuffer3.jpg)
 
-“She’s trying to smuffer me with the pillows!” He exclaims.
+"She’s trying to smuffer me with the pillows!" He exclaims.
 
-“Piggie,” I say, “you can’t breath!”
+"Piggie," I say, "you can’t breath!"
 
-“I know! That’s what I’m telling you! She is trying to smuffer-kate me!”
+"I know! That’s what I’m telling you! She is trying to smuffer-kate me!"
 
-“No,” I explain, “You have no lungs! You CAN’T breath!”
+"No," I explain, "You have no lungs! You CAN’T breath!"
 
 Piggie stops to consider that. He looks at me, then back to the pillow mound, then back to me.
 
-“Oh!” He laughs, “In that case, never mind!” He dives onto the mound and squirms into a crease between two of the pillows. The mound grunts and shudders for a moment — then falls silent after a long “ahhhhhh”.
+"Oh!" He laughs, "In that case, never mind!" He dives onto the mound and squirms into a crease between two of the pillows. The mound grunts and shudders for a moment — then falls silent after a long "ahhhhhh".
 
 ![](smuffer2.jpg)
 

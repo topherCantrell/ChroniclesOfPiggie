@@ -18,13 +18,13 @@ Now, where was I? Oh yes. September 19, 2023. The most famous holiday for inspir
 
 ![](pirate01.jpg)
 
-First, we braved the damp and dark basement and dug up our storage box labeled “Pirates.” Every year, we ramble around in the costumes, swords, and gear in that musty box. There is even a paper mache parrot, Booty, to ride on your shoulder. We selected our garb for the day. This year, I stuck with a simple eye patch. Chris chose the hat with built-in dreadlocks.
+First, we braved the damp and dark basement and dug up our storage box labeled "Pirates." Every year, we ramble around in the costumes, swords, and gear in that musty box. There is even a paper mache parrot, Booty, to ride on your shoulder. We selected our garb for the day. This year, I stuck with a simple eye patch. Chris chose the hat with built-in dreadlocks.
 
-We also found “Ye Olde Treasure Map” in the box. That brings back memories from the great treasure hunt of 2002. Chris and I relived the adventures of that day. And we battled with the plastic swords. I won, of course. We Piggies are natural swordsmen.
+We also found "Ye Olde Treasure Map" in the box. That brings back memories from the great treasure hunt of 2002. Chris and I relived the adventures of that day. And we battled with the plastic swords. I won, of course. We Piggies are natural swordsmen.
 
-Then, it was time to board our ship, the Subaru Forrester, and plunder for doughnuts at the local Krispy Kreme! See, every year on this day, Krispy Kreme offers a free doughnut to anyone dressed like a pirate. They say “free,” but that doesn’t stop me from barging in and demanding one in a gruff, pirate voice. “Arr! Hand over the goodies!”
+Then, it was time to board our ship, the Subaru Forrester, and plunder for doughnuts at the local Krispy Kreme! See, every year on this day, Krispy Kreme offers a free doughnut to anyone dressed like a pirate. They say "free," but that doesn’t stop me from barging in and demanding one in a gruff, pirate voice. "Arr! Hand over the goodies!"
 
-We circled the Krispy Kreme island for an hour, waiting for them to let their guard down by turning on the “Hot Now” sign. Then we pulled on our eye patches and made our move!
+We circled the Krispy Kreme island for an hour, waiting for them to let their guard down by turning on the "Hot Now" sign. Then we pulled on our eye patches and made our move!
 
 We left the plastic swords on the ship, though. In this day and time, you can get arrested for wielding a pretend weapon.
 

@@ -30,7 +30,7 @@ I think we have time for one more question. Ah, great question! Does our busy sc
 
 As you know, snacks are very important to Nibbles and me. We try to schedule four good snacking events every day.
 
-We also use snack time for relaxation, fun, and games. Different snacks suggest different games. For instance, here you see us playing a zero-gravity game called “Bounce the snack off the wall to your friend.” Nibbles invented this game, and there was a moment of panic when a Peanut M&M accidentally hit the “open the windows” button.
+We also use snack time for relaxation, fun, and games. Different snacks suggest different games. For instance, here you see us playing a zero-gravity game called "Bounce the snack off the wall to your friend." Nibbles invented this game, and there was a moment of panic when a Peanut M&M accidentally hit the "open the windows" button.
 
 We scrambled frantically to close the windows again — not because of the air; neither of us requires air pressure. But all the snacks were floating out into space! That’s what we call a class-one red-alert emergency!
 

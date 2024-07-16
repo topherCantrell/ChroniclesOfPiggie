@@ -2,7 +2,7 @@ After the Scaring Hazel post ...
 
 November 1, 2021: 12:42 AM
 
-Hazel and I are on the computer now. That seems like a strange phrase, doesn’t it: “on the computer”. Except in my case, it’s true. I am literally standing with my front two feet on the ‘f’ and ‘j’ keys. Hazel is sitting on the desk beside me. Wow, this cat is fat. She barely fits on the desk, and her legs are dangling off into the air. In the rare moments she does wake up, she’ll follow the mouse pointer around the screen. I usually open kitten videos for her and play them in a window down in the corner of the monitor by her.
+Hazel and I are on the computer now. That seems like a strange phrase, doesn’t it: "on the computer". Except in my case, it’s true. I am literally standing with my front two feet on the ‘f’ and ‘j’ keys. Hazel is sitting on the desk beside me. Wow, this cat is fat. She barely fits on the desk, and her legs are dangling off into the air. In the rare moments she does wake up, she’ll follow the mouse pointer around the screen. I usually open kitten videos for her and play them in a window down in the corner of the monitor by her.
 
 I just updated my facebook page with photos from last night. It was Halloween, and Daddy dressed me up like a mummy! He wrapped toilet paper around me, but not too much and not too tight. Last time I tried that, I got scared being all bound up with my eyes covered.
 

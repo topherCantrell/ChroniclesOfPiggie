@@ -14,7 +14,7 @@ There is the full-length mirror against the bedroom wall. And there I am on the 
 
 The bed-hair isn’t too bad today. I’ve definitely had worse. I turn sideways to count my four deep brown legs in the mirror. Yep, there are four! There are always four. Each is capped with black feet, or hands. I have no toes or fingers, so they are basically the same.
 
-My body is a long brown, furry tube with a gray face on one end and a white “wash with care” tag as my tail. I have a pure black patch of hair on top of my head. That’s my mane! My granddad was pure Razor-Back.
+My body is a long brown, furry tube with a gray face on one end and a white "wash with care" tag as my tail. I have a pure black patch of hair on top of my head. That’s my mane! My granddad was pure Razor-Back.
 
 I have two little black eyes and two curly ears. I have a white and black snout, and if I stretch way out … like this … I am a full eight-and-a-half inches long! But I am only half that tall. Oh well. I won’t be a star basketball player. But maybe a mascot! I’d make a good mascot. You can’t tell by my 9:00AM wake-up, but I’m full of energy if you get me going.
 
@@ -30,21 +30,21 @@ Just a little push through the crack, and we are in the dark hallway. The hardwo
 
 One step. Two steps. Now I’m trotting. You can hear my little heart pounding with the effort and with excitement! Faster, faster. Running! I must be up to a hundred miles an hour. I bet my hair is all blown back in the wind.
 
-She hears me now, and her eyes pop open wide. She starts to get up, and I yell out as loud as I can, “YEEEE HAWWWW”! The loud sound startles her, and she freezes for a moment. I lower my head and run right under her rooting down between her and the wall. There is a moment of darkness and a tornado of fur around me. Then I’m past her and sliding to a stop.
+She hears me now, and her eyes pop open wide. She starts to get up, and I yell out as loud as I can, "YEEEE HAWWWW"! The loud sound startles her, and she freezes for a moment. I lower my head and run right under her rooting down between her and the wall. There is a moment of darkness and a tornado of fur around me. Then I’m past her and sliding to a stop.
 
 I try to turn around to see the chaos, but my little feet are slipping on the wood. Finally, I get my head around. There is no sign of Hazel. Oh wait! There she is five steps up the stairs. Her back is arched, and her fur is standing straight up on end. HA HA HA!
 
-“Good morning, Hazel!” but she is not amused.
+"Good morning, Hazel!" but she is not amused.
 
 And some of you aren’t either? You don’t like me scaring that big, dumb cat? Well stick around till the end of the day when she is wound up on her cat tree ledge and I’m walking by sleepy and out of energy. Then watch her snatch me up onto the ledge and swat me around. Maybe then you’ll feel sorry for the big dumb pig!
 
 But listen to me. I’ve been chattering away. Maybe some of you readers have questions for me? Just think them really hard and I’ll get them. I’ll answer all I can. Anybody?
 
-Wait, what? What’s my name? I was so excited scaring Hazel that I forgot to introduce myself. Sorry about that. My given name is Wilbur, but my family and friends call me “Piggie”. So, I hope you will call me “Piggie”.
+Wait, what? What’s my name? I was so excited scaring Hazel that I forgot to introduce myself. Sorry about that. My given name is Wilbur, but my family and friends call me "Piggie". So, I hope you will call me "Piggie".
 
-Ah good question. The question was “what will you have for breakfast”?
+Ah good question. The question was "what will you have for breakfast"?
 
-There are a few choices depending on what I’m in the mood for. I might climb up in the cabinet and get the chopped walnuts that Mom puts in her oatmeal. Two or three of those is a good meal! Or I might make myself a bowl of honeynut cheerios with a banana cut up in it. But we might be out of regular milk. I don’t mind Mom’s almond milk, but I’ll probably take a pass and eat the walnuts. Walnuts – honey nut – almond milk. Yeah. Looks like “nuts” are for breakfast.
+There are a few choices depending on what I’m in the mood for. I might climb up in the cabinet and get the chopped walnuts that Mom puts in her oatmeal. Two or three of those is a good meal! Or I might make myself a bowl of honeynut cheerios with a banana cut up in it. But we might be out of regular milk. I don’t mind Mom’s almond milk, but I’ll probably take a pass and eat the walnuts. Walnuts – honey nut – almond milk. Yeah. Looks like "nuts" are for breakfast.
 
 Any body else? What’s that? Are me and Hazel friends?
 

@@ -2,7 +2,7 @@
 
 > May 21, 2023
 
-We watched youtube videos the other day, and Weird Al’s “Foil” came on.
+We watched youtube videos the other day, and Weird Al’s "Foil" came on.
 
 I’m sure you’ve seen it. It starts out helping you keep your food fresh, but then it takes a darker turn into alien abductions and government conspiracy theories. One verse really got my attention:
 
@@ -14,7 +14,7 @@ To probe your [rump] or read your mind.
 - Weird Al Yankovic
 ```
 
-Piggies have “rumps,” so I sing it differently than you do. But just who are these Aliens, and what do they want? Why the heck are they running around probing our rumps? If they really can read our minds, they know we really don’t like that!
+Piggies have "rumps," so I sing it differently than you do. But just who are these Aliens, and what do they want? Why the heck are they running around probing our rumps? If they really can read our minds, they know we really don’t like that!
 
 Well, I decided to get to the bottom of all this (pardon the pun). Dad and I spent the day at the bookstore doing some heavy research.
 
@@ -48,22 +48,22 @@ I stopped at The Deep Comics to talk with the most famous alien of all: E.T.
 
 ![](UFO8.jpg)
 
-Piggie: “Excuse me, Mr. T, can you answer a few questions?”
-E.T.: “Please, call me E.”
-Piggie: “OK, E, what bought you to planet Earth?”
-E.T.: “One word: CANDY. Specifically, Reeces Pieces. I just love peanut butter and chocolate, and these bite-sized morsels don’t leave chocolate on my fingers. I have long fingers, you know!”
+Piggie: "Excuse me, Mr. T, can you answer a few questions?"
+E.T.: "Please, call me E."
+Piggie: "OK, E, what bought you to planet Earth?"
+E.T.: "One word: CANDY. Specifically, Reeces Pieces. I just love peanut butter and chocolate, and these bite-sized morsels don’t leave chocolate on my fingers. I have long fingers, you know!"
 
 ![](UFO7.jpg)
 
-Piggie: “Oh, I love those too, but you probably already knew that from reading my mind.”
-E.T.: “I can’t actually read your mind.”
-Piggie: “I know! That’s because I have this foil-lined hat on! But tell me, do aliens really probe rumps?”
-E.T.: “Absolutely not! That idea is just conspiracy theory fodder advanced by pharmacies to sell petroleum jelly.”
+Piggie: "Oh, I love those too, but you probably already knew that from reading my mind."
+E.T.: "I can’t actually read your mind."
+Piggie: "I know! That’s because I have this foil-lined hat on! But tell me, do aliens really probe rumps?"
+E.T.: "Absolutely not! That idea is just conspiracy theory fodder advanced by pharmacies to sell petroleum jelly."
 
 ![](UFO11.jpg)
 
-Piggie: “Mr. T … err, E, if you have a few more minutes, I’d like to invite a leading alien expert to join us on a Zoom call.”
-E.T.: “Ah yes, Giorgio A. Tsoukalos! Always a pleasure. Your hair is looking spectacular as always.”
+Piggie: "Mr. T … err, E, if you have a few more minutes, I’d like to invite a leading alien expert to join us on a Zoom call."
+E.T.: "Ah yes, Giorgio A. Tsoukalos! Always a pleasure. Your hair is looking spectacular as always."
 
 ![](UFO10.jpg)
 

@@ -31,11 +31,11 @@ Oh yes, that’s a live foot! If you watch it long enough, you might see one of 
 
 We have to stay awake and guard the treasure. This cave has a wonderful treasure. It’s not money or jewels — it’s Mom’s red, fuzzy socks! She wears them on particularly cold nights. She doesn’t need them tonight, so I balled them up by the fire to keep them dry and toasty. We must guard them and keep them safe from the Sleep Monster! Although, I don’t think her sock will fit on that big old stinky foot. Hmm.
 
-You stay here by the fire while I step out and check on the storm. Don’t worry, I’ll be fine. See those rustling trees? That’s just a box fan blowing on the curtains. I like to keep a big box fan running at night for the breeze and the noise. And look — it’s not even wet out here. The storm is just “Thunderstorm Sounds” playing on Alexa. See? She’s right up there on the headboard. Let me pull the cover back a bit so you can see …
+You stay here by the fire while I step out and check on the storm. Don’t worry, I’ll be fine. See those rustling trees? That’s just a box fan blowing on the curtains. I like to keep a big box fan running at night for the breeze and the noise. And look — it’s not even wet out here. The storm is just "Thunderstorm Sounds" playing on Alexa. See? She’s right up there on the headboard. Let me pull the cover back a bit so you can see …
 
 Oh no! I woke the Sleep Monster! Here comes its giant hand! Everyone to the back of the cave as fast as you can!
 
-“Night-night time, Piggie,” the Sleep Monster whispers.
+"Night-night time, Piggie," the Sleep Monster whispers.
 
 Oh no! The giant hand caught me! It’s pulling me into a snuggle. Anything but that — I can’t resist the dreaded snuggle. Sigh. But now that I think about it, I really am very tired. It has been a long day.
 

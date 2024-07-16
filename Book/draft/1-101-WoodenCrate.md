@@ -2,9 +2,9 @@
 
 Mason pulled a bowl from the stack of dirty dishes beside the sink. He dunked it into the soapy water, scrubbed the remains of beef stew from it, and handed the bowl to Violet for rinsing.
 
-“It was a busy night tonight,” Mason said. “Everyone loved your cobbler!”
+"It was a busy night tonight," Mason said. "Everyone loved your cobbler!"
 
-Violet smiled, rinsed the bowl, and placed it on the drying rack. “Saturday nights are always busy.”
+Violet smiled, rinsed the bowl, and placed it on the drying rack. "Saturday nights are always busy."
 
 Mason scraped a crust of bread from the next dirty plate. As he sunk the plate beneath the suds, there was a quick knock at the kitchen door. 
 
@@ -12,7 +12,7 @@ He dried his hands on his apron as he crossed the room. He unhooked the latches 
 
 Nobody was there.
 
-Mason squinted into the dark night and finally called, “Hello?” 
+Mason squinted into the dark night and finally called, "Hello?" 
 
 Nobody answered.
 
@@ -22,24 +22,24 @@ A gray kitten with big green eyes sat in the middle of the blanket. Those eyes w
 
 There was a rolled-up piece of paper beside the kitten. Mason carefully opened it and read.
 
-“My hard life at sea is no place for these two angels. Please welcome Hazel and Piggie into your family. Please love them with all your hearts.”
+"My hard life at sea is no place for these two angels. Please welcome Hazel and Piggie into your family. Please love them with all your hearts."
 
-Mason laid the note back on the blanket and carefully picked up the kitten. She had a purple collar with a silver heart-shaped tag that read “Hazel.”
+Mason laid the note back on the blanket and carefully picked up the kitten. She had a purple collar with a silver heart-shaped tag that read "Hazel."
 
-“You must be Hazel!” Mason stroked the kitten as she padded at his red beard. 
+"You must be Hazel!" Mason stroked the kitten as she padded at his red beard. 
 
 A stream of grunts and snorts began in the crate. Hazel and Mason watched as the blanket shook and quivered with something moving underneath.
 
 A little brown snout emerged from a fold in the blanket. The blanket fell still while the nose worked, twitching and sniffing the air. Then the rest of a brown, furry head poked out and looked up at them. The head sat there for a second, unmoving but watching. Suddenly, the entire stuffed piglet shot out of the blanket and began jumping and squealing excitedly at the side of the crate.
 
-“Piggie!” Hazel announced her brother and giggled.
+"Piggie!" Hazel announced her brother and giggled.
 
 Mason shifted the kitten to one hand and picked up Piggie with the other.
 
-“Well, hello! You must be Piggie. Piggie and Hazel! I’m very happy to meet you. My name is Mason, but you can call me Red.”
+"Well, hello! You must be Piggie. Piggie and Hazel! I’m very happy to meet you. My name is Mason, but you can call me Red."
 
-He looked into the night again — at a bush, at the corner of a building. Was someone watching to see the fate of their loved ones? He added loudly in case they were, “Welcome to your new home!”
+He looked into the night again — at a bush, at the corner of a building. Was someone watching to see the fate of their loved ones? He added loudly in case they were, "Welcome to your new home!"
 
-“Who is it?” Violet asked from the kitchen.
+"Who is it?" Violet asked from the kitchen.
 
-“Come on," Mason whispered, "Let’s go surprise your mom.”
+"Come on," Mason whispered, "Let’s go surprise your mom."

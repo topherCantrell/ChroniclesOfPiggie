@@ -18,4 +18,4 @@ The Super Bowl is tomorrow night. Nibbles suggested we add hot chocolate to the 
 
 Getting the dark chocolate mix was MY idea! Mom can’t pass up hot dark chocolate, and we give her free marshmallows because she smiles and scratches our heads.
 
-Speaking of marshmallows, we are running low already. I think Nibbles is sneaking them when I’m not looking. And what is that he’s building at the other end of the bar? Is that a “corn chip” stand? On, no! There goes my allowance.
+Speaking of marshmallows, we are running low already. I think Nibbles is sneaking them when I’m not looking. And what is that he’s building at the other end of the bar? Is that a "corn chip" stand? On, no! There goes my allowance.

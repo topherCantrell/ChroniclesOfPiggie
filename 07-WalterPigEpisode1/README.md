@@ -20,7 +20,7 @@ I just love a good lunch out. The food, the ambience, the intellectual conversat
 
 ![](walter3.jpg)
 
-I couldn’t decide between iced tea and lemonade, so Mom ordered something called an “Arnold Palmer” Yummy!
+I couldn’t decide between iced tea and lemonade, so Mom ordered something called an "Arnold Palmer" Yummy!
 
 ![](walter4.jpg)
 
