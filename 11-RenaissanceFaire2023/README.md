@@ -4,6 +4,8 @@
 
 Time for the Alabama Renaissance Faire!
 
+> ---
+
 Chris is wearing his usual: the monk ensemble. I’m making a suit of armor. The chest plate is an aluminum can, and the helmet is a foil cupcake liner. Pig Knight is ready for battle!
 
 ![](faire01.jpg)

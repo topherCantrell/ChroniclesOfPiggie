@@ -2,7 +2,9 @@
 
 > September 9, 2021
 
-Yeah! It's national Bring a Piggie to Work Day! I'm spending the day with the big guy.
+Yea! It's national Bring a Piggie to Work Day! I'm spending the day with the big guy.
+
+> ---
 
 ![](car.jpg)
 

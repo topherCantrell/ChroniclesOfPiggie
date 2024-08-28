@@ -4,6 +4,8 @@
 
 The moon is NOT made of cheese!
 
+> ---
+
 ## December 4, 2023
 
 The Thanksgiving holidays are behind us, and Nibbles and I spent way too much time watching old TV shows. Late one night, we caught the Wallace and Gromit episode where they go to the moon for cheese.

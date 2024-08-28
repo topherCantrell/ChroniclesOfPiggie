@@ -4,6 +4,8 @@
 
 Happy birthday, Mom!
 
+> ---
+
 Stacy's brithday was Sunday (three days ago). She was on a business trip, but she left us a wish-list. Chris and I knocked them out over several days! And we even sneaked in some surprises that weren't on the list.
 
 Her list:

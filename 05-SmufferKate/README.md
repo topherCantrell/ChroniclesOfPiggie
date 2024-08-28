@@ -4,6 +4,8 @@
 
 Where is The Piggie?
 
+> ---
+
 I open the door to check the bedroom. Well, I found Stacy. She is petite, but somehow she has managed to consume the whole bed. All the pillows are scooped into a giant, fluffy mound to prop her up. I hear muffled cries from deep inside Mount Pillow.
 
 With much squirming and wiggling, Piggie roots himself out from under the mound and hops to the foot of the bed where I’m standing.

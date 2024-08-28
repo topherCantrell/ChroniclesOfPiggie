@@ -4,6 +4,8 @@
 
 We watched youtube videos the other day, and Weird Al’s "Foil" came on.
 
+> ---
+
 I’m sure you’ve seen it. It starts out helping you keep your food fresh, but then it takes a darker turn into alien abductions and government conspiracy theories. One verse really got my attention:
 
 ```

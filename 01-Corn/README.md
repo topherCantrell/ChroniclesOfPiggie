@@ -4,6 +4,8 @@
 
 I really like it. I mean REALLY!
 
+> ---
+
 Yes, I like healthy corn too, but when it's snack time in front of the TV, these are my favorites:
 
 ![](corn1.jpg)

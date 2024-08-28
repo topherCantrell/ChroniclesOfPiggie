@@ -4,6 +4,8 @@
 
 Hello, planet Earth!
 
+> ---
+
 This is Piggie and Nibbles talking to you from near-Earth-orbit on our way to the moon. We have a few minutes to answer questions before our scheduled transfer burn out of orbit. Are there any questions?
 
 Good question: why did we stop in orbit? Why not head straight to the moon?

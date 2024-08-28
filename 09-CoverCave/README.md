@@ -5,6 +5,8 @@
 
 What are you doing out in this storm?
 
+> ---
+
 Come on in and get out of that weather! Let me hold the mouth of the cave open for you a bit — hurry in here. Wow! Just look at those trees shaking in the wind. Listen to that pounding rain and rolling thunder. But it’s nice and cozy in the cover cave.
 
 I know what you are thinking: a cave is a cold, damp place. But this cave is special. I built it myself from the covers of this giant bed. I dug down to the soft and springy cave floor mattress and propped up the roof with pillows and folds in the comforter.

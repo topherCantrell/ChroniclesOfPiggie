@@ -4,6 +4,8 @@
 
 Ice cold drinks for only a quarter!
 
+> ---
+
 Renovations are complete on the new kitchen, and it looks great! We have new floors, new appliances, and lots and lots of counter space. Nibbles and I celebrated the grand opening by putting up a drink stand on the island in the middle of the kitchen.
 
 ![](stand.jpg)
